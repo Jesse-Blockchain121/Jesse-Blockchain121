@@ -6,6 +6,7 @@ I am a Senior Consultant at Blockchain 121 - always looking to connect with inte
 📫 How to reach me: https://linktr.ee/jvzeidaks
 
 Outside of blockchain you'll find me at the gym 🏋🏽‍♂ cycling 🚴‍♂️ or grabbing a drink at my local 🍺
+
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Blockchain 121 • Blockchain & Web 3 talent supply experts since 2019. 
