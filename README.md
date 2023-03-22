@@ -1,5 +1,3 @@
-[![MasterHead](C:\Users\Jesse Zeidaks\Pictures\Camera Roll\Blockchain 121 banner.jpg)](https://github.com/Jesse-Blockchain121)
-
 Hey there! 👋
 
 I am a blockchain recruitment consultant at Blockchain 121 - always looking to connect with interesting people across Web 3, whether you are looking for your next big opportunity, or need help finding the right candidates 👯 
