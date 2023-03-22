@@ -1,8 +1,6 @@
-**Principal Blockchain Recruitment Consultant** @ Blockchain 121 
-
 Hey there! 👋
 
-I am always looking to connect with interesting people across Web 3, whether you are looking for your next big opportunity, or need help finding the right candidates 👯 
+I am a blockchain recruitment consultant at Blockchain 121 - always looking to connect with interesting people across Web 3, whether you are looking for your next big opportunity, or need help finding the right candidates 👯 
 
 
 💬 Ask me about the most exciting projects I am working with
