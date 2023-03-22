@@ -3,6 +3,7 @@ Hey there! 👋
 I am a Senior Consultant at Blockchain 121 - always looking to connect with interesting people across Web 3, whether you are looking for your next big opportunity, or need help finding the right candidates 👯 
 
 💬 Ask me about the most exciting projects I am working with
+
 📫 How to reach me: https://linktr.ee/jvzeidaks
 
 Outside of blockchain you'll find me at the gym 🏋🏽‍♂ cycling 🚴‍♂️ or grabbing a drink at my local 🍺
