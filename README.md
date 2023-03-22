@@ -8,7 +8,7 @@
 
 
 
-Hey there! 👋 I'm Jesse, a Principal Blockchain Recruitment Consultant at Blockchain 121 - always looking to connect with interesting people across Web 3, whether you are looking for your next big opportunity, or need help finding the right candidates 👯 
+Hey there! 👋 I'm Jesse, a Principal Blockchain Recruitment Consultant at [Blockchain 121](https://www.blockchain121.com/) - always looking to connect with interesting people across Web 3, whether you are looking for your next big opportunity, or need help finding the right candidates 👯 
 <br/>
 
 
