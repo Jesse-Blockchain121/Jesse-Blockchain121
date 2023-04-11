@@ -1,4 +1,4 @@
-<h2> The only blockchain recruiter you will ever need </h2>
+<h2> Building Blockchain Teams </h2>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=jesse-blockchain121&label=Profile%20views&color=0e75b6&style=flat" alt="jesse-blockchain121" /> </p>
 </p>
 <p align="left">
